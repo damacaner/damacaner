@@ -1,4 +1,4 @@
-### Path of Exile addict, working on anything related to data or cryptography. My entire public repos are pure trash tho.
+### professional masturbator and python coder
 
 <!--
 **damacaner/damacaner** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
