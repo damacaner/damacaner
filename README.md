@@ -1,4 +1,5 @@
-### professional masturbator and python coder
+### changing this readme because you know, the things.
+### I am capable to code whatever I want except frontend things, I am just running out of ideas.
 
 <!--
 **damacaner/damacaner** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
